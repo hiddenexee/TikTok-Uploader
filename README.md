@@ -10,7 +10,7 @@
  
 # Contact:
 
-Discord: https://discord.com/users/1213658859185381387 (inactive)
+Discord: https://discord.com/users/1213658859185381387 (-inactive)
 <br>
 Telegram: @hiddenexe
 <br>
